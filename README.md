@@ -1,2 +1,3 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=internet+YAMERO;click+on+kangel)](https://git.io/typing-svg)
-[![intro](https://files.catbox.moe/9vxtlf.png)](https://hostbody.straw.page)
+making a readme is so cancerous so im postponing this to september 3rd 2026 at 3:06 pm central european standard time
+
+im assuming u found this profile through pony town.... i never studied in school and instead played pony town, thats how i became a himejoshi. dont be like me
