@@ -6,7 +6,7 @@
 
 ### [my super duper awesome atabook where you can tell me alllll about ur day!!! Sign me...](https://brad.atabook.org)
 
-hi cheers bye my name is jacob otherwise famously known as brad!!! i play pt on rare occasions when im fujoshing out, i am a minor and i lowk have no idea how im not banned from the 18+ servers yet but ay thats a story for another day...
+hi cheers bye my name is nathan otherwise famously known as brad!!! i play pt on rare occasions when im fujoshing out, i am a minor and i lowk have no idea how im not banned from the 18+ servers yet but ay thats a story for another day...
 
 ![](https://i.postimg.cc/NMMQ4cRw/image-2024-05-26-153945128.png)
 
